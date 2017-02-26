@@ -1,0 +1,2 @@
+# kusomiso
+hardcore
